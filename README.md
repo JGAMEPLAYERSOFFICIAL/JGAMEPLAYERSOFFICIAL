@@ -1,16 +1,15 @@
-### Hi there 👋
+### OLA HOMEM OU MENINA BUNITA👋
 
-<!--
-**JGAMEPLAYERSOFFICIAL/JGAMEPLAYERSOFFICIAL** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+MEU NOME È **JOAO VITOR MIGUEL** E TENHO UM IRMAO CHAMADO **RAFAEL MIGUEL**; MAS ELE NAO GOSTA MUITO QUANDO CHAMA ELE ASSIM,ACHO QUE E VERGONHA
 
-Here are some ideas to get you started:
+- EU E O RAFAEL SOMOS ALUNOS DA MATERIA DE PENSAMENTO COMPUTACIONAL E DO PRIMEIRO ANO A DO COLEGIO MILITAR GENEROSO
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- O PROFESSOR E LINDO E DEPOIS DELE OUVIR ISSO, ELE VAI ME DAR NOTA 10
+
+- **ODEIO QUANDO O GABRIEL LOBO ME CUTUCA OU QUANDO ALGUEM ME IRRITA**
+
+- **MINHA VONTADE E DE ASSEDIAR VERBALMENTE ESSA PESSOA**
+
+- RAFAEL E MEU IRMAO E EU NOS APELIDAMOS DE MISTER POPO BROTHERS]
+
+- EU ME PERGUNTO PORQUE AS MENINAS ME FALAM PARA ABRAÇAR O MAIKOU;; A MENINA NO MEU LADO FALOU QUE ELE E VIADO **OMGGG....**
